@@ -9,6 +9,8 @@
 评分：4.5/5 <br>
 《Somers卖身记》
 
+![avatar](https://images.huffingtonpost.com/2014-12-02-photo-thumb.jpg)
+
 县级市番外，格力高写日常恋爱的功力还是不错的，但他在正传里很少展示。Somers竟然背着男友Hazard把自己身子卖出去了，当Hazard知道真相时拍卖会已经要开始了。Somers答应了Pretty Pretty Boys酒吧主管的邀请，把和自己约会一晚的机会拍卖出去，所得的钱用来帮助儿童。Hazard内心燃起了熊熊的妒火，但他看在慈善的份上还是忍住了。
 
 酒吧拍卖会上一众辣男搔首弄姿哄抬B价，Hazard在台下看得怒火攻心，更糟糕的是，他的前男友Nico闪亮登场成为了全场的焦点，即便是Somers拍卖价也略逊一筹。场下一个老男人更是十分激动，对着Somers的肉体口吐芬芳，Hazard差点控制不住自己引发冲突。中场间隙，Somers突然发现自己搞错了比赛规则，只准备了一套衣服，因此求Hazard帮自己多找一套衣服。
